@@ -1,4 +1,4 @@
-[![AnaisP974](https://media.licdn.com/dms/image/D4E16AQHB5QOZO4iISA/profile-displaybackgroundimage-shrink_350_1400/0/1716562521695?e=1724284800&v=beta&t=PdBoAJYqJxjd3yzm5qKWAqRbnlywA3MMA-Shm70_OaE)](https://aperigny.fr)
+[![AnaisP974](https://media.licdn.com/dms/image/v2/D4E16AQHB5QOZO4iISA/profile-displaybackgroundimage-shrink_350_1400/profile-displaybackgroundimage-shrink_350_1400/0/1719351516659?e=1732752000&v=beta&t=A5nqM_tiV5dN6hccutglt_rd5-ugUfvDymY4MlSSmHs)](https://aperigny.fr)
 
 ---
 
